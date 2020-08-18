@@ -2,7 +2,7 @@
 
 福利姬导航
 
-~~https://1flj.xyz/~~(被墙)
+https://1flj.xyz/（被墙）
 
 https://2flj.xyz/
 
