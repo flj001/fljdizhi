@@ -8,7 +8,7 @@ https://2flj.xyz/
 
 福利姬视频
 
-https://1flj.com/
+https://1flj.live/
 
 福利姬社区
 
